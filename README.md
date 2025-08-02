@@ -1,3 +1,4 @@
-- 👋 Olá, sou o Leo Vieira >>>>
-- 👀 Me interesso em aprender todos os dias alguma coisa a mais sobre o mundo da computação >>>>
-- 🌱 Atualmente estou cursando Análise e Desnvolvimento de Sistemas >>>>
+👋 Olá, sou o Leo Vieira >>>>
+¬¬ Deixe um comentário positivo sobre a linguagem você manja
+( se quiser pode deixar uma crítica (qualquer uma)).
+Até mais...
